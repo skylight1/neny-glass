@@ -1,4 +1,4 @@
 neny
 ====
 
-New Eats New Yok
+New Eats New York - Google Glass
